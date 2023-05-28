@@ -1,5 +1,4 @@
-# 💫 About Me:
-🔭 computer engineering student<br>
+🔭 computer engineering student at iust<br>
 
 
 ## 🌐 Socials:
