@@ -1,4 +1,4 @@
-🔭 computer engineering student at iust<br>
+🔭 computer engineering student<br>
 
 
 ## 🌐 Socials:
